@@ -1,0 +1,2 @@
+Download the .html and double click it and there you go! AFriends tv series stats analysis facts and Trivia..to keep long story short going to university meant I made some friends and the idea was we see Friends tv series...we are friends..
+Friends tv series was actually one of the first U.S. tv series that made a success here in Greece later on people became tv series maniacs and now you know we talk(here in Greece) like very awkward...anyway...enjoy the stats!
